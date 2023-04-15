@@ -10,3 +10,4 @@ https://www.fiverr.com/share/0vom4a
 https://twitter.com/ayeshah0608
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i'm a still learner hehehe..
+- how to reach me on facebook?:https://www.facebook.com/profile.php?id=100084708152125 
